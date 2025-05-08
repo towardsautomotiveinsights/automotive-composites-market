@@ -1,6 +1,6 @@
 # Automotive Composites Market Size, Outlook, and Opportunities
 
-The global [automotive composites market] is projected to grow from USD 12.18 billion in 2025 to USD 25.83 billion by 2034, expanding at a CAGR of 10.76% from 2025 to 2034. This growth is fueled by the increasing demand for sustainable materials in the automotive sector and the drive for lightweight vehicles that improve fuel efficiency and overall vehicle performance.
+The global [automotive composites market](url) is projected to grow from USD 12.18 billion in 2025 to USD 25.83 billion by 2034, expanding at a CAGR of 10.76% from 2025 to 2034. This growth is fueled by the increasing demand for sustainable materials in the automotive sector and the drive for lightweight vehicles that improve fuel efficiency and overall vehicle performance.
 
 ## Automotive Composites Market Size from 2024 to 2025
 
